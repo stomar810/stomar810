@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Spring Boot and DSA**
 
-- 👯 I’m looking to collaborate on **Java development**
+- 👯 I’m looking to collaborate on **Java Projects**
 
 - 🤝 I’m looking for help with **DevOps**
 
