@@ -12,7 +12,6 @@
 
 - 📫 How to reach me **tomarsatyam187@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/w/s!ApVPtCm8o8vUhBiNBLhC9A3y0AHU?e=mJgOSk](https://1drv.ms/w/s!ApVPtCm8o8vUhBiNBLhC9A3y0AHU?e=mJgOSk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
